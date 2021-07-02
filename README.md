@@ -6,6 +6,5 @@ Gwapo ko
 
 WOwowoweee
 
-iyoy
-
-asdasdasdasdasdasd
+asdasd
+asdasdas
